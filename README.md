@@ -1,2 +1,2 @@
 # 7007175958
-https://www.giaw.com/c
+https://www.qiwa.sa/en/business-owners/manage-qiwa-business-account/how-manage-payments-qiwa
